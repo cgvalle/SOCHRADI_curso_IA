@@ -1,0 +1,1 @@
+# SOCHIRADI_curso_IA
